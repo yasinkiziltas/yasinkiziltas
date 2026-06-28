@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **iOS,Mobile**
 
-- 📫 How to reach me **yasinkiziltas.com**
+- 📫 How to reach me: **yasinkiziltas.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
